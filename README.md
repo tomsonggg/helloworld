@@ -1,4 +1,2 @@
 # helloworld
-fuck
-fuckyoukjhkjhfkjsk
-dashabi
+fuck bitchs gt hi
